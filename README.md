@@ -1,1 +1,0 @@
-# sandyymandy.github.io
